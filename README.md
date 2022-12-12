@@ -1,7 +1,5 @@
 # Valorant-Cheat Free
-Valorant AIM+ESP Free 
-README.md
-
+# PASSWORD 2022
 
 Valorant
 Status: UNDETECTED
